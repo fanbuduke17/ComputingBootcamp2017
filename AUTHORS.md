@@ -1,1 +1,1 @@
-Fan Bu-fb75@duke.edu
+Fan Bu - fb75@duke.edu
